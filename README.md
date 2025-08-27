@@ -14,7 +14,7 @@ i use tonetags unless its established when/when not im joking w/ homies
 
 im an INFP and an one-sided ambivert (leaning towards introvert side), which means at times I can be vry shy and non-verbal. while other times i can yap my behind off!
 
-for the most part, whenever im online, ill most likely be afk either offtab, gaming or dealing whatever life throws at me!! srry if my responses could be slow at times
+for the most part, whenever im online, ill most likely be afk either offtab, gaming or dealing w/ whatever life throws at me!! srry if my responses could be slow at times
 
 mainly in sth area, ut/dt, w/ homies or some place so not crowded!
 
