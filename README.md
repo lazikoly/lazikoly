@@ -36,3 +36,7 @@ ages 13-18 iyw!! (unless we've already been homies)
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ * ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
 
 ![IMG_9866](https://github.com/user-attachments/assets/7233b152-7e1b-45ed-ab39-fb547d871c12)
+
+✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ * ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
+
+@lazikoly on disc
