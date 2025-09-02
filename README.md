@@ -27,13 +27,9 @@ feel free to int/w2i w/ me!!! i gen dont chomp anyone's head off i swear!!! (be 
 
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ * ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
 
-for my dni's? hate to break it to you but I dont got any, but that means I am free to block/hide you out of my own will if you make me uncomfortable or harrass (non-jokingly) me.
+no dni. i block freely!
 
-ORR if you gen bash on others for harmless interests/ships/etc. ORR in general just a huge asshole both online and in real life, u suck buns
-
-(u can int/be homies w/ me even if u dislike some of my interests! we all hve our likes/dislikes!!!! just dont bash me on it)
-
-ages 13-18 iyw!! (unless we've already been homies)
+ages 13-18 iyw!! in general; as long as u aren't a weirdo, honest w/ ur age, and know to act depending on age differences, I honestly dont give a single crap!
 
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ * ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
 
