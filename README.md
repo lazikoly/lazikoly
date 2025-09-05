@@ -29,7 +29,7 @@ feel free to int/w2i w/ me!!! i gen dont chomp anyone's head off i swear!!! (be 
 
 no dni. i block freely!
 
-ages 14-18 iyw!! in general; as long as u aren't a weirdo, honest w/ ur age, and know to act depending on age differences, I honestly dont give a single crap!
+ages 14-20 iyw!! in general; as long as u aren't a weirdo, honest w/ ur age, and know to act depending on age differences, I honestly dont give a single crap!
 
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ * ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
 
