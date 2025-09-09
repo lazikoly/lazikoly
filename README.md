@@ -20,8 +20,7 @@ mainly in sth area, ut/dt, w/ homies or some place so not crowded!
 
 feel free to int/w2i w/ me!!! i gen dont chomp anyone's head off i swear!!! (be warned that im unfunny/dry as heck at times)
 
-{cuddle, boop, cover: freely!}
-{kiss: only if homie!}
+c+h/boop freely!!!
 
 💥 I sometimes joke about organs/blood, nothing extreme, but if that makes u uncomfy lmk!💥
 
