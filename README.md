@@ -6,7 +6,7 @@ this is mainly for ponytown so if ur snoopin for more about me in general,, chec
 
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ * ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
 
-💥 MINOR - 16💥 
+💥 16💥 
 
 multishipper/multifandom
 
