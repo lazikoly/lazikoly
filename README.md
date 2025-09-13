@@ -2,7 +2,7 @@
 
 HII HELLOO!! uu can call me lazy or to make ur life easier, laz is perfectly fine aswell! 😼😼
 
-this is mainly for ponytown so if ur snoopin for more about me in general,, check out my carrd and/or strawpage! (once its out... im slacking guys...)
+this is mainly for ponytown so if ur snoopin for more about me in general,, check out my strawpage! (once its out... im slacking guys...)
 
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ * ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
 
@@ -36,4 +36,4 @@ ages 14-20 iyw!! (but in general i dont give a flying crap, just know how to act
 
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ * ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
 
-@lazikoly on disc
+@lazikoly on discord
