@@ -18,7 +18,9 @@ for the most part, whenever im online, ill most likely be afk either offtab, gam
 
 mainly in sth area, ut/dt, w/ homies or some place so not crowded!
 
-feel free to int/w2i w/ me!!! i gen dont chomp anyone's head off i swear!!! (be warned that im unfunny/dry as heck at times)
+feel free to int w/ me!!! i gen dont chomp anyone's head off i swear!!! (be warned that im unfunny/dry as heck at times)
+
+if im afk/offtab w2i!
 
 c+h/boop/cover freely!!!
 
