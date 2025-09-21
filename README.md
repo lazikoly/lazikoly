@@ -8,15 +8,13 @@ this is mainly for ponytown so if ur snoopin for more about me in general,, chec
 
 💥 16💥 
 
-multishipper/multifandom
-
 i use tonetags unless its established when/when not im joking w/ homies
 
 im an INFP and an one-sided ambivert (leaning towards introvert side), which means at times I can be vry shy and non-verbal. while other times i can yap my behind off!
 
 for the most part, whenever im online, ill most likely be afk either offtab, gaming or dealing w/ whatever life throws at me!! srry if my responses could be slow at times
 
-mainly in sth area, ut/dt, w/ homies or some place so not crowded!
+mainly in sth area, w/ homies or some place so not crowded!
 
 feel free to int w/ me!!! i gen dont chomp anyone's head off i swear!!! (be warned that im unfunny/dry as heck at times)
 
@@ -28,7 +26,7 @@ c+h+k/boop/cover freely!!!
 
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ * ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
 
-no dni. i block freely!
+no dni. i block freely! (rarely)
 
 ages 14-20 iyw!! (but in general i dont give a flying crap, just know how to act and be honest!!)
 
