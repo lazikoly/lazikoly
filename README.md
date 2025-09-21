@@ -2,7 +2,7 @@
 
 HII HELLOO!! uu can call me lazy or to make ur life easier, laz is perfectly fine aswell! 😼😼
 
-this is mainly for ponytown so if ur snoopin for more about me in general,, check out my strawpage! (once its out... im slacking guys...)
+this is mainly for ponytown so if ur snoopin for more about me in general,, check out my strawpage! (ITS FINALALY DONE 😭😭)
 
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ * ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
 
@@ -22,7 +22,7 @@ feel free to int w/ me!!! i gen dont chomp anyone's head off i swear!!! (be warn
 
 if im afk/offtab w2i!
 
-c+h/boop/cover freely!!!
+c+h+k/boop/cover freely!!!
 
 💥 I sometimes joke about organs/blood, nothing extreme, but if that makes u uncomfy lmk!💥
 
