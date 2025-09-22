@@ -26,7 +26,7 @@ c+h+k/boop/cover freely!!!
 
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ * ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
 
-no dni. i block freely! (rarely)
+no dni. i block freely!
 
 ages 14-20 iyw!! (but in general i dont give a flying crap, just know how to act and be honest!!)
 
