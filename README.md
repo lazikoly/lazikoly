@@ -35,5 +35,3 @@ ages 14-20 iyw!! (but in general i dont give a flying crap, just iwc and be hone
 ![IMG_9866](https://github.com/user-attachments/assets/7233b152-7e1b-45ed-ab39-fb547d871c12)
 
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ * ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
-
-@lazikoly on discord
