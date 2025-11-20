@@ -9,11 +9,14 @@ this is mainly for **pony town,,** my guns is where everythings at!!
 
 ‧˚₊꒷꒦︶︶︶︶︶꒷꒦︶︶︶︶︶꒦꒷‧₊˚⊹‧˚₊꒷꒦︶︶︶︶︶꒷꒦︶︶︶︶︶꒦꒷‧₊˚⊹
 
-✧ infp n' ambivert (huge introvert at heart) !! i yap a bunch,, beware..
+✧ infp n' ambivert (huge introvert at heart) !! i yap a bunch at times,, beware..
 
-✧ almost always offtab/afk 
+✧ almost always offtab/afk
 
-![d7mnd84-6316d1ae-0394-4c31-9e74-baa1da26b9d2](https://github.com/user-attachments/assets/e2d231fe-fe39-4d0e-b63d-b8867998ea9a)
+![96d171e459939d301e2bcaf44d4cbeef_w200](https://github.com/user-attachments/assets/2ba15b9d-d890-45c8-938c-1870c4bece35)
+
+
+
 
 
 ![17636750286225862](https://github.com/user-attachments/assets/f39058b9-929d-4f5f-a63d-e1f283bfe97b)
