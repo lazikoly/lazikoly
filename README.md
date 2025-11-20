@@ -12,7 +12,7 @@ this is mainly for **pony town,,** my guns is where everythings at!!
 
 ✧ almost always offtab/afk !! prefer if u **w2i** !!
 
-✧ ask b4 friending PUHHHleasee !! i need to get to know u first silly,,,
+✧ ask b4 friending PUHHHleasee !! i need to get to know u first, silly,,,
 
 ✧ dont be afraidd to int w/ me,, i dont chomp anyone's head off I swear !!
 
@@ -21,16 +21,13 @@ this is mainly for **pony town,,** my guns is where everythings at!!
 ‧˚₊꒷꒦︶︶︶︶︶꒷꒦︶︶︶︶︶꒦꒷‧₊˚⊹‧˚₊꒷꒦︶︶︶︶︶꒷꒦︶︶︶︶︶꒦꒷‧₊˚⊹
 
 
-✧ sometimes i run out of thingys to say so i might be rlly **dry** !!
+✧ sometimes i run out of thingys to say so i might be rlly **dry** n' **boring** !!
 
 ✧ unfunniest person oughh em gee i kid u not,,,
 
 ✧ dark humor alert; blood, organs etc. !! nunthin too far...
 
-![96d171e459939d301e2bcaf44d4cbeef_w200](https://github.com/user-attachments/assets/2ba15b9d-d890-45c8-938c-1870c4bece35)
-
-
-
+‧˚₊꒷꒦︶︶︶︶︶꒷꒦︶︶︶︶︶꒦꒷‧₊˚⊹‧˚₊꒷꒦︶︶︶︶︶꒷꒦︶︶︶︶︶꒦꒷‧₊˚⊹
 
 
 ![17636750286225862](https://github.com/user-attachments/assets/f39058b9-929d-4f5f-a63d-e1f283bfe97b)
