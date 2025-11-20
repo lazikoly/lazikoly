@@ -33,9 +33,8 @@ this is mainly for **pony town,,** my guns is where everythings at!!
 ![17636750286225862](https://github.com/user-attachments/assets/f39058b9-929d-4f5f-a63d-e1f283bfe97b)
 
 
+‧˚₊꒷꒦︶︶︶︶︶꒷꒦︶︶︶︶︶꒦꒷‧₊˚⊹‧˚₊꒷꒦︶︶︶︶︶꒷꒦︶︶︶︶︶꒦꒷‧₊˚⊹
 
-
-
-
+✧ usuallyy sittin w/ my partymates, online fam n' homies !! sttop being so cooll u stinkies... <33
 
 <img width="750" height="150" alt="kstydm" src="https://github.com/user-attachments/assets/f7d28a70-b42e-4b3e-8f38-51c23b08d53d" />
