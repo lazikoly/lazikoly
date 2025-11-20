@@ -6,17 +6,26 @@ wipp !!!
 
 this is mainly for **pony town,,** my guns is where everythings at!!
 
-
 ‧˚₊꒷꒦︶︶︶︶︶꒷꒦︶︶︶︶︶꒦꒷‧₊˚⊹‧˚₊꒷꒦︶︶︶︶︶꒷꒦︶︶︶︶︶꒦꒷‧₊˚⊹
 
 ✧ infp n' ambivert (huge introvert at heart) !! i yap a bunch sometimes,, beware..
 
 ✧ almost always offtab/afk !! prefer if u **w2i** !!
 
-✧ c+h, boop, kiss, cover freely !! even if its not in my name !! ![d7mnd84-6316d1ae-0394-4c31-9e74-baa1da26b9d2](https://github.com/user-attachments/assets/f106a11c-9ffd-4d68-8d70-4fff140f7d3a)
-
 ✧ ask b4 friending PUHHHleasee !! i need to get to know u first silly,,,
 
+✧ dont be afraidd to int w/ me,, i dont chomp anyone's head off I swear !!
+
+✧ c+h, boop, kiss, cover freely !! even if its not in my name ![d7mnd84-6316d1ae-0394-4c31-9e74-baa1da26b9d2](https://github.com/user-attachments/assets/f106a11c-9ffd-4d68-8d70-4fff140f7d3a)
+
+‧˚₊꒷꒦︶︶︶︶︶꒷꒦︶︶︶︶︶꒦꒷‧₊˚⊹‧˚₊꒷꒦︶︶︶︶︶꒷꒦︶︶︶︶︶꒦꒷‧₊˚⊹
+
+
+✧ sometimes i run out of thingys to say so i might be rlly **dry** !!
+
+✧ unfunniest person oughh em gee i kid u not,,,
+
+✧ dark humor alert; blood, organs etc. !! nunthin too far...
 
 ![96d171e459939d301e2bcaf44d4cbeef_w200](https://github.com/user-attachments/assets/2ba15b9d-d890-45c8-938c-1870c4bece35)
 
