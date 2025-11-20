@@ -1,41 +1,8 @@
-(REMAKINNGG SOOONNN :DD)
+[divider](https://i.postimg.cc/3xgJrQZv/qs2lvy.png)
 
-✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ * ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
 
-HII HELLOO!! uu can call me lazy or to make ur life easier, laz is perfectly fine aswell! 😼😼
 
-this is mainly for ponytown so if ur snoopin for more about me in general,, check out my carrd (II FIANLYLY FINISHED IT)!
 
-✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ * ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
 
-💥16💥 
 
-i use tonetags unless its established when/when not im joking w/ homies
 
-im an INFP and an one-sided ambivert (leaning towards introvert side), which means at times I can be vry shy and non-verbal. while other times i can yap my behind off!
-
-for the most part, whenever im online, ill most likely be afk either offtab, gaming or dealing w/ whatever life throws at me!! sometimes i dont know what to respond w/ either, srry if my responses could be slow at times
-
-mainly in sth area, w/ homies or some place so not crowded!
-
-feel free to int w/ me!!! i gen dont chomp anyone's head off i swear!!! (be warned that im unfunny/dry as heck at times)
-
-im not good at convos so i'd rather u come up to me first!!
-
-if im afk/offtab w2i!
-
-c+h+k/boop/cover freely!!! even if its not on my name!!
-
-💥 I sometimes joke about organs/blood, nothing extreme, but if that makes u uncomfy lmk!💥
-
-✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ * ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
-
-no dni. i block freely! (rarely)
-
-ages 14-20 iyw!! (but in general i dont give a flying crap, just iwc and be honest!!)
-
-✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ * ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
-
-![IMG_9866](https://github.com/user-attachments/assets/7233b152-7e1b-45ed-ab39-fb547d871c12)
-
-✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ * ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
