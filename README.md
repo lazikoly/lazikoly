@@ -37,4 +37,6 @@ this is mainly for **pony town,,** my guns is where everythings at!!
 
 ✧ usuallyy sittin w/ my partymates, online fam n' homies !! sttop being so cooll u stinkies... <33
 
+im putting all my mooties/oomfies/fam + cool folks HERE SOON!! JUST U WAITT
+
 <img width="750" height="150" alt="kstydm" src="https://github.com/user-attachments/assets/f7d28a70-b42e-4b3e-8f38-51c23b08d53d" />
