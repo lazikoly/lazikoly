@@ -39,5 +39,4 @@ this is mainly for **pony town,,** my guns is where everythings at!!
 
 im putting all my mooties/oomfies/fam + cool folks HERE SOON!! JUST U WAITT
 
-<img width="750" height="150" alt="kstydm" src="https://github.com/user-attachments/assets/f7d28a70-b42e-4b3e-8f38-51c23b08d53d" />
-
+![Image](https://github.com/user-attachments/assets/c10eac27-5252-4afa-b6ef-7b15491e38c7)
