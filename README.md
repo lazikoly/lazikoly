@@ -39,4 +39,3 @@ this is mainly for **pony town,,** my guns is where everythings at!!
 
 im putting all my mooties/oomfies/fam + cool folks HERE SOON!! JUST U WAITT
 
-![Image](https://github.com/user-attachments/assets/c10eac27-5252-4afa-b6ef-7b15491e38c7)
