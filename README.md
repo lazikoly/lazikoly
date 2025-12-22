@@ -41,4 +41,4 @@ im putting all my mooties/oomfies/fam + cool folks HERE SOON!! JUST U WAITT
 
 <img width="750" height="150" alt="kstydm" src="https://github.com/user-attachments/assets/f7d28a70-b42e-4b3e-8f38-51c23b08d53d" />
 
-![Amy](https://www.google.com/url?sa=i&url=https%3A%2F%2Fscreenrant.com%2Fsonic-the-hedgehog-3-amy-rose-limiter-rings-shadow-detail-explainer%2F&psig=AOvVaw343eNrK4owf0wULEJQSFTq&ust=1766529682366000&source=images&cd=vfe&opi=89978449&ved=0CBYQjRxqFwoTCOjupISi0pEDFQAAAAAdAAAAABAE)
+![Image](https://github.com/user-attachments/assets/d97f7adb-b81f-47f0-a194-92dea463d15a)
