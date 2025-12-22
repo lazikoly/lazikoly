@@ -41,4 +41,3 @@ im putting all my mooties/oomfies/fam + cool folks HERE SOON!! JUST U WAITT
 
 <img width="750" height="150" alt="kstydm" src="https://github.com/user-attachments/assets/f7d28a70-b42e-4b3e-8f38-51c23b08d53d" />
 
-![Image](https://github.com/user-attachments/assets/d97f7adb-b81f-47f0-a194-92dea463d15a)
