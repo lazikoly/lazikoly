@@ -39,3 +39,4 @@ this is mainly for **pony town,,** my guns is where everythings at!!
 
 im putting all my mooties/oomfies/fam + cool folks HERE SOON!! JUST U WAITT
 
+my father [Metalz!! <3](https://github.com/metalzXasukaz) big sibs [Gabs!! <3](https://github.com/corner-dweller), [Bella!! <3](https://github.com/GhostlyGirlfriend) my daughter [Skye!! <3](https://github.com/skyeskup)
