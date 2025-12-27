@@ -39,6 +39,8 @@ this is mainly for **pony town,,** my guns is where everythings at!!
 
 im putting all my mooties/oomfies/fam + cool folks HERE SOON!! JUST U WAITT
 
-<p align="center">my father [Metalz!! <3](https://github.com/metalzXasukaz) big sibs [Gabs!! <3](https://github.com/corner-dweller),[Bella!! <3](https://github.com/GhostlyGirlfriend) my daughter [Skye!! <3](https://github.com/skyeskup)</p>
+**ONLINE FAM:** my father [Metalz!! <3](https://github.com/metalzXasukaz) big sibs [Gabs!! <3](https://github.com/corner-dweller),[Bella!! <3](https://github.com/GhostlyGirlfriend) my daughter [Skye!! <3](https://github.com/skyeskup)</p>
 
-[Chomp!! <3](https://github.com/chomperoni),[Dorito!! <3](https://github.com/DoritoBagzz),[Harper!! <3](https://github.com/rensra)
+**PARTYHOMIES:** [Chomp!! <3](https://github.com/chomperoni),[Dorito!! <3](https://github.com/DoritoBagzz),[Harper!! <3](https://github.com/rensra)
+
+**BROPEPPERONIS:**
