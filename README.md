@@ -43,4 +43,6 @@ im putting all my mooties/oomfies/fam + cool folks HERE SOON!! JUST U WAITT
 
 **PARTYHOMIES:** [Chomp!! <3](https://github.com/chomperoni),[Dorito!! <3](https://github.com/DoritoBagzz), [Mira!! <3](https://github.com/mewmajestic), [Mira #2!! <3](https://github.com/lilkittn)
 
-**BROPEPPERONIS:** [Mookie!! <3](https://github.com/M1XOSiY), [Metal!! <3](https://github.com/real-sonic), [Harper!! <3](https://github.com/rensra), [Andy!! <3](https://github.com/g0ob1e), [Star!! <3](https://github.com/CosmeticStar), [Kirian!! <3](https://github.com/itstvtime420), [Moxxo!! <3](https://github.com/Moiemon)
+**HOMIES:** [Mookie!! <3](https://github.com/M1XOSiY), [Metal!! <3](https://github.com/real-sonic), [Harper!! <3](https://github.com/rensra), [Andy!! <3](https://github.com/g0ob1e), [Star!! <3](https://github.com/CosmeticStar), [Kirian!! <3](https://github.com/itstvtime420), [Moxxo!! <3](https://github.com/Moiemon)
+
+**COOL BROEPPERONIS I NEED TO INT W/ MORE:**
