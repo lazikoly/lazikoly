@@ -10,4 +10,4 @@ wip !!
 
 <h1 align="center"> $\color{Yellow}{\textbf{HOMIES}}$
 
-<h1 align="center"> $\color{Yellow}{\textb{THE COOLEST}}$
+<h1 align="center"> $\color{Yellow}{\textb {THE COOLEST}}$
