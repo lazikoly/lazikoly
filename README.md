@@ -1,6 +1,6 @@
 wip !!
 
-﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵ ﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵ <img width="460" height="466" alt="Image" src="https://github.com/user-attachments/assets/7cf6814c-3003-4908-a2bd-180d7ea39aa9" />
+﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵ ﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵
 
 ![Profile views](https://komarev.com/ghpvc/?username=lazikoly&color=blue&style=flat&label=silly+goobers&abbreviated=true)
 
