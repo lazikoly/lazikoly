@@ -1,7 +1,5 @@
 wip !!
 
-﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵ ﹒˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵
-
 ![Profile views](https://komarev.com/ghpvc/?username=lazikoly&color=blue&style=flat&label=silly+goobers&abbreviated=true)
 
 
