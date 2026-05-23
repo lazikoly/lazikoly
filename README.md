@@ -14,7 +14,7 @@ wip !! give me like a year,, 😭
 ⭐️ rascals ⭐️
 </p>
 <p align="center">
-rascals who <del>ruin</del> make my life better everytime theyre around !! <3 
+rascals who <del>ruin</del> make my life joyous everytime theyre around !! <3 
 </p>
 
 [star](https://github.com/CosmeticStar), [limneezy](https://github.com/Sour-Lim), [chompersaurus](https://github.com/chomperoni), [mira](https://github.com/lilkittn), [moxxo](https://github.com/Moiemon), [sonky](https://github.com/windlesstorm), [cool doranchito](https://github.com/DoritoBagzz), 
