@@ -17,4 +17,4 @@ wip !! give me like a year,, 😭
 rascals who <del>ruin</del> make my life joyous everytime theyre around !! <3 
 </p>
 
-[star](https://github.com/CosmeticStar), [limneezy](https://github.com/Sour-Lim), [chompersaurus](https://github.com/chomperoni), [mira](https://github.com/lilkittn), [moxxo](https://github.com/Moiemon), [sonky](https://github.com/windlesstorm), [cool doranchito](https://github.com/DoritoBagzz), 
+[platonic wife andy](https://github.com/g0ob1e), [star](https://github.com/CosmeticStar), [limneezy](https://github.com/Sour-Lim), [chompersaurus](https://github.com/chomperoni), [mira](https://github.com/lilkittn), [moxxo](https://github.com/Moiemon), [sonky](https://github.com/windlesstorm), [cool doranchito](https://github.com/DoritoBagzz), <3
