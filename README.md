@@ -20,3 +20,5 @@ rascals who <del>ruin</del> make my life joyous everytime theyre around !! <3
 </p>
 
 [platonic wife andy](https://github.com/g0ob1e), [star](https://github.com/CosmeticStar), [limneezy](https://github.com/Sour-Lim), [chompersaurus](https://github.com/chomperoni), [mira](https://github.com/lilkittn), [moxxo](https://github.com/Moiemon), [cool doranchito](https://github.com/DoritoBagzz), [mookiez](https://github.com/M1XOSiY)
+
+[rentry WIP !!! movin everythin here basically >>>>](https://rentry.co/sonadowyurii/edit)
