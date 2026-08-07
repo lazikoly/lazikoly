@@ -4,6 +4,4 @@ ill make thris pretty !! give me a lil bit timee
 
 ![Profile views](https://komarev.com/ghpvc/?username=lazikoly&color=yellow&style=flat&label=silly+goobers&abbreviated=true)
 
-https://github.com/monachgrievings
-
 [rentry!!](https://rentry.co/sonadowyurii)
