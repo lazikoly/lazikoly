@@ -5,8 +5,5 @@ ill make thris pretty !! give me a lil bit timee
 ![Profile views](https://komarev.com/ghpvc/?username=lazikoly&color=yellow&style=flat&label=silly+goobers&abbreviated=true)
 
 https://github.com/monachgrievings
-to the claim of me apparently 'stalking' and 'spreading misinfo' by monach is nothing but balaoni?? i was in no way correlated to the situation, nor did i take any action against it beside minding my own business and keeping my thoughts to myself, because again, i was nothin but a mere outsider to the whole thing and never wanted to be apart of it. because of this, i hid those in which i didnt want to associate myself with. please dont drag me into something i wasnt the perpetrators nor victims in. leave me be, i block freely 😭
-
-literally no evidence of me stalking whatsoever?? ive been had both you and clyde hidden way before everything happened, why would i even search out for you two? i geniunely dont care 💔 no where on the screenshots and literally just the situation as a whole have my name written anywhere on it, stop trying to make me seem like im someone im not
 
 [rentry!!](https://rentry.co/sonadowyurii)
