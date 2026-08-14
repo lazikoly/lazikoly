@@ -10,3 +10,7 @@ rascals who make my life better when theyre around since i dront suppor the rent
 [chompersaur](https://github.com/chomperoni) [yatta](https://github.com/ilyYatta) [limneezy](https://github.com/Sour-Lim) [doranchito](https://github.com/DoritoBagzz) [starazzi](https://github.com/CosmeticStar) [baekho](https://github.com/MechanicalBurn) [mookie](https://github.com/M1XOSiY)
 
 n' more oomfs in follows + w/o githubs !! figurin out wher to put thris 
+
+THFANKS YEWW [SHIPTOWN](https://github.com/ship-town)!!! 
+
+<img width="526" height="108" alt="Image" src="https://github.com/user-attachments/assets/05d9648d-90c2-4194-a487-f3acada88e0e" />
