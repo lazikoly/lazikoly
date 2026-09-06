@@ -7,7 +7,7 @@ loveliest fam EVER !! [metalz](https://github.com/EquivocalSys) [bella](https://
 
 rascals who make my life better when theyre around since i dront suppor rentry becuz of the controversies 🥹
 [andy](https://github.com/FinnFxnn) [salem](https://github.com/salemsweetness) [majin](https://github.com/HEDGYMAJIN) [metal](https://github.com/Terrificorice) [moxxo](https://github.com/Moiemon) [mira #2](https://github.com/lilkittn) [relic](https://github.com/iloveinksans) [john](https://github.com/Johnlock4ev)
-[chompersaur](https://github.com/chomperoni) [yatta](https://github.com/ilyYatta) [limneezy](https://github.com/Sour-Lim) [doranchito](https://github.com/DoritoBagzz) [starazzi](https://github.com/CosmeticStar) [baekho](https://github.com/MechanicalBurn) [mookie](https://github.com/M1XOSiY)
+[chompersaur](https://github.com/chomperoni) [yatta](https://github.com/ilyYatta) [limneezy](https://github.com/Sour-Lim) [doranchito](https://github.com/DoritoBagzz) [starazzi](https://github.com/CosmeticStar) [baekho](https://github.com/MechanicalBurn) [mookie](https://github.com/M1XOSiY) [draco](https://github.com/Draco-Marco)
 
 n' more oomfs in follows + w/o githubs !! figurin out wher to put thris 
 
