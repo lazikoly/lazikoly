@@ -9,7 +9,7 @@ BIIGIG FATTT WIPPPP
 
 ![bleh](https://file.garden/ap-GrVKGYjQSf0RV/shads)![bleh](https://file.garden/ap-GrVKGYjQSf0RV/TIKTLALL)![bleh](https://file.garden/ap-GrVKGYjQSf0RV/superstartails)![bleh](https://file.garden/ap-GrVKGYjQSf0RV/awhchudlilsonic)
 
-  ![bleh](https://file.garden/ap-GrVKGYjQSf0RV/DAWG)${\textsf{\color{#insert hex code}ㅤㅤ˖   ✦  › haii!! lazy / laz here !! :33 im a casual sticks n' sonic kinnie 𓂃}}$![bleh](https://file.garden/ap-GrVKGYjQSf0RV/WOAUH)
+  ![bleh](https://file.garden/ap-GrVKGYjQSf0RV/DAWG)${\textsf{\color{#insert hex code}ㅤㅤ˖   ✦  › haii!! lazy / laz here !! :33 im a casual sticks n' prime sonic kinnie 𓂃}}$![bleh](https://file.garden/ap-GrVKGYjQSf0RV/WOAUH)
   ${\textsf{\color{#insert hex code} ◟ `` ˖ big sucker for sonadow n' rougamy,, ill die on this hill!! tails is my comf character ever <3 ,, ₊⊹}}$ ![bleh](https://file.garden/ap-GrVKGYjQSf0RV/Chaoo)
 
 ⛧°. ⋆༺☾𖤓༻⋆. °⛧
