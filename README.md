@@ -7,10 +7,10 @@ BIIGIG FATTT WIPPPP
 
 ![Profile views](https://komarev.com/ghpvc/?username=lazikoly&color=2C247F&style=flat&label=silly+goobers&abbreviated=true)
 
-![bleh](https://file.garden/ap-GrVKGYjQSf0RV/shads)![bleh](https://file.garden/ap-GrVKGYjQSf0RV/superstartails)![bleh](https://file.garden/ap-GrVKGYjQSf0RV/awhchudlilsonic)
+![bleh](https://file.garden/ap-GrVKGYjQSf0RV/shads)![bleh](https://file.garden/ap-GrVKGYjQSf0RV/TIKTLALL)![bleh](https://file.garden/ap-GrVKGYjQSf0RV/superstartails)![bleh](https://file.garden/ap-GrVKGYjQSf0RV/awhchudlilsonic)
 
   ![bleh](https://file.garden/ap-GrVKGYjQSf0RV/DAWG)${\textsf{\color{#insert hex code}ㅤㅤ˖   ✦  › haii!! lazy / laz here !! :33 im a casual sticks n' sonic kinnie 𓂃}}$![bleh](https://file.garden/ap-GrVKGYjQSf0RV/WOAUH)
-  ${\textsf{\color{#insert hex code} ◟ `` ˖ sucker for sonadow and rougamy!! tails is my comf character ever <3 ,, ₊⊹}}$ ![bleh](https://file.garden/ap-GrVKGYjQSf0RV/Chaoo)
+  ${\textsf{\color{#insert hex code} ◟ `` ˖ big sucker for sonadow n' rougamy,, ill die on this hill!! tails is my comf character ever <3 ,, ₊⊹}}$ ![bleh](https://file.garden/ap-GrVKGYjQSf0RV/Chaoo)
 
 ⛧°. ⋆༺☾𖤓༻⋆. °⛧
 
