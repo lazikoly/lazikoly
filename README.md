@@ -14,6 +14,14 @@ BIIGIG FATTT WIPPPP
 
 ⛧°. ⋆༺☾𖤓༻⋆. °⛧
 
+for poony town...
+
+${\textsf{\color{#insert hex code} i mights make kys/kms n' dark jokes,, as wells as say the f slur that i cans reclaim!! }}$
+
+${\textsf{\color{#insert hex code} whisper/cuddle/kiss/hide/boop freelys!! <3 }}$
+
+⛧°. ⋆༺☾𖤓༻⋆. °⛧
+
 loveliest fam EVER !! [metalz](https://github.com/EquivocalSys) [bella](https://github.com/NoLoveInTheHouseOfG0ld) [gabs](https://github.com/corner-dweller) [skylar](https://github.com/skuix) [skidz](https://github.com/SKIDSpooKz) [mira #1](https://github.com/mewmajestic) [rosie](https://github.com/MUSE-ical) [miko](https://github.com/mitchielog)
 [lunive](https://github.com/ghastlyknight) [kirian](https://github.com/subspace-kisser) [hollow](https://github.com/VintageNight) [nicky](https://github.com/PUNK-REBEL) [reans](https://github.com/hottopic-shad)
 
