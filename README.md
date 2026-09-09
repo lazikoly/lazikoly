@@ -16,7 +16,7 @@ BIIGIG FATTT WIPPPP
 
 for poony town...
 
-${\textsf{\color{#insert hex code} i mights make kys/kms n' dark jokes,, as wells as say the f slur that i cans reclaim!! }}$
+${\textsf{\color{#insert hex code} i mights make kys/kms n' dark/freaky jokes,, as wells as say the f slur that i cans reclaim!! }}$
 
 ${\textsf{\color{#insert hex code} whisper/cuddle/kiss/hide/boop freelys!! <3 }}$
 
