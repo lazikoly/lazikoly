@@ -14,6 +14,10 @@ BIIGIG FATTT WIPPPP
 
 ⛧°. ⋆༺☾𖤓༻⋆. °⛧
 
+${\textsf{\color{#insert hex code}cuddle/hide/cover/whisper/boop/kiss freelys!!}}$
+
+⛧°. ⋆༺☾𖤓༻⋆. °⛧
+
 loveliest fam EVER !! [metalz](https://github.com/EquivocalSys) [bella](https://github.com/NoLoveInTheHouseOfG0ld) [gabs](https://github.com/corner-dweller) [skylar](https://github.com/skuix) [skidz](https://github.com/SKIDSpooKz) [mira #1](https://github.com/mewmajestic) [rosie](https://github.com/MUSE-ical) [miko](https://github.com/mitchielog)
 [lunive](https://github.com/ghastlyknight) [kirian](https://github.com/subspace-kisser) [hollow](https://github.com/VintageNight) [nicky](https://github.com/PUNK-REBEL) [reans](https://github.com/hottopic-shad)
 
