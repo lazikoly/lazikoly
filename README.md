@@ -22,7 +22,7 @@ loveliest fam EVER !! [metalz](https://github.com/EquivocalSys) [bella](https://
 [lunive](https://github.com/ghastlyknight) [kirian](https://github.com/subspace-kisser) [hollow](https://github.com/VintageNight) [nicky](https://github.com/PUNK-REBEL) [reans](https://github.com/hottopic-shad)
 
 rascals who make my life better when theyre around [andy](https://github.com/FinnFxnn) [salem](https://github.com/salemsweetness) [majin](https://github.com/HEDGYMAJIN) [metal](https://github.com/Terrificorice) [sonkers](https://github.com/windlesstorm) [moxxo](https://github.com/Moiemon) [mira #2](https://github.com/lilkittn) [relic](https://github.com/iloveinksans) [john](https://github.com/Johnlock4ev)
-[chompersaur](https://github.com/chomperoni) [yatta](https://github.com/ilyYatta) [limneezy](https://github.com/Sour-Lim) [doranchito](https://github.com/DoritoBagzz) [starazzi](https://github.com/CosmeticStar) [baekho](https://github.com/MechanicalBurn) [mookie](https://github.com/M1XOSiY) [draco](https://github.com/Draco-Marco)
+[chompersaur](https://github.com/chomperoni) [yatta](https://github.com/ilyYatta) [limneezy](https://github.com/Sour-Lim) [doranchito](https://github.com/DoritoBagzz) [starazzi](https://github.com/CosmeticStar) [baekho](https://github.com/MechanicalBurn) [mookie](https://github.com/M1XOSiY) [draco](https://github.com/Draco-Marco) [louie](https://github.com/DesolateMeadow)
 
 n' more oomfs in follows + w/o githubs !! figurin out wher to put thris 
 
