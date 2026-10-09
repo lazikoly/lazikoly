@@ -11,12 +11,17 @@ SSOORRYY IT TAKES ME FORVEVR TO RESPODN TO GIMMICKSK IM SO BUSYY QwQ
 
 ![bleh](https://file.garden/ap-GrVKGYjQSf0RV/shads)![bleh](https://file.garden/ap-GrVKGYjQSf0RV/TIKTLALL)![bleh](https://file.garden/ap-GrVKGYjQSf0RV/superstartails)![bleh](https://file.garden/ap-GrVKGYjQSf0RV/awhchudlilsonic)
 
-  ![bleh](https://file.garden/ap-GrVKGYjQSf0RV/DAWG)${\textsf{\color{#2B267E}ㅤㅤ˖   ✦  › haii!! lazy / laz here !! :33 im a casual sticks n' prime sonic kinnie 𓂃}}$![bleh](https://file.garden/ap-GrVKGYjQSf0RV/WOAUH)
-  ${\textsf{\color{#insert hex code} ◟ `` ˖ big sucker for sonadow n' rougamy,, ill die on this hill!! tails is my comf character ever <3 ,, ₊⊹}}$ ![bleh](https://file.garden/ap-GrVKGYjQSf0RV/Chaoo)
+  ![bleh](https://file.garden/ap-GrVKGYjQSf0RV/DAWG)${\textsf{\color{#342EA6}ㅤㅤ˖   ✦  › haii!! lazy / laz here !! :33 im a casual sticks n' prime sonic kinnie 𓂃}}$![bleh](https://file.garden/ap-GrVKGYjQSf0RV/WOAUH)
+  ${\textsf{\color{#20649F} ◟ `` ˖ big sucker for sonadow n' rougamy,, ill die on this hill!! tails is my comf character ever <3 ,, ₊⊹}}$ ![bleh](https://file.garden/ap-GrVKGYjQSf0RV/Chaoo)
 
 ⛧°. ⋆༺☾𖤓༻⋆. °⛧
 
-${\textsf{\color{#insert hex code}cuddle/hide/cover/whisper/boop/kiss freelys!!}}$
+pony town!!
+
+
+${\textsf{\color{#insert hex code} w2i always!! offtab/afk a lots,, srry if it takes forever for me to see ur whispers!!}}$
+
+${\textsf{\color{#insert hex code}cuddle/hide/whisper/cover/whisper/boop/kiss freelys!!}}$
 
 ⛧°. ⋆༺☾𖤓༻⋆. °⛧
 
