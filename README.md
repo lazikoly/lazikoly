@@ -18,10 +18,13 @@ SSOORRYY IT TAKES ME FORVEVR TO RESPODN TO GIMMICKSK IM SO BUSYY QwQ
 
 pony town!!
 
+almost always at the bottom of sonic area!!
+
+dni lists r stupid,, i block freely !!
 
 ${\textsf{\color{#insert hex code} w2i always!! offtab/afk a lots,, srry if it takes forever for me to see ur whispers!!}}$
 
-${\textsf{\color{#insert hex code}cuddle/hide/whisper/cover/whisper/boop/kiss freelys!!}}$
+${\textsf{\color{#insert hex code}cuddle/hide/whisper/cover/boop/kiss freelys!!}}$
 
 ⛧°. ⋆༺☾𖤓༻⋆. °⛧
 
