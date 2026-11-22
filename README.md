@@ -18,7 +18,7 @@ SSOORRYY IT TAKES ME FORVEVR TO RESPODN TO GIMMICKSK IM SO BUSYY QwQ
 
 pony town!!
 
-${\textsf{\color{#insert hex code} almost always at the bottom of sonic area!! !!}}$
+${\textsf{\color{#insert hex code} almost always at the bottom of sonic area!!}}$
 
 ${\textsf{\color{#insert hex code} dni lists r stupid,, i block freely !!}}$
 
