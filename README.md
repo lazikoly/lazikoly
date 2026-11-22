@@ -24,7 +24,7 @@ ${\textsf{\color{#insert hex code} dni lists r stupid,, i block freely !!}}$
 
 ${\textsf{\color{#insert hex code} w2i always!! offtab/afk a lots,, srry if it takes forever for me to see ur whispers!!}}$
 
-${\textsf{\color{#insert hex code}cuddle/hide/whisper/cover/boop/kiss freelys!!}}$
+${\textsf{\color{#insert hex code}cuddle/hide/whisper/cover/boop/kiss freelys!! i LOAVVFF cuddlin in silence!!}}$
 
 ${\textsf{\color{#insert hex code}i'd prefer you int w/ me first, im anxious to make the first move to any1, especially in the sonic area,, 💔}}$
 
